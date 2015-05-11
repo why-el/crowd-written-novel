@@ -1,1 +1,3 @@
-It was a sunny May day when Bill decided to take a walk. He reached for his cane
+It was a sunny May day when Bill decided to take a walk. He reached for his cane, glanced out the window and braced himself for the usual onslaught of students that would join him. Only one such awakening mind--James--had started to understand that his impairment wasn't an impediment, as leaving your body did not happen on the physical plane. And so what started out as a typical day of spiritual lessons and exploration began.  
+
+As soon as Bill's feet touched the lawn, James started firing out questions. Immediately Bill knew that James had made that initial connection with source. That initial connection which forever changes the tides for an individuate consciousness. [the paragraph needs to be completed. the concept is to gradually enlighten the reader to mechanics of James' newly started spiritual journey]
