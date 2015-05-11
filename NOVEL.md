@@ -1,1 +1,1 @@
-It was a sunny May day when Bill decided to take a walk. He reached for his cane
+It was a sunny May day when Bill decided to take a walk. He reached for his cane and gas mask. He loaded his guns and stuffed one behind his pants and one in his socks. He also packed a pink colored hand-grenade with an army knife. He looked in the mirror, adjusted his cap and was ready to play paintball with his piss drunk buddies.
