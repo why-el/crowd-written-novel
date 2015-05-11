@@ -1,1 +1,1 @@
-It was a sunny May day when Bill decided to take a walk. He reached for his cane
+It was a sunny May day when Bill decided to take a walk. He reached for his cane, a sunburst strip of world-worn oak embroidered with his late granddaughter's favorite dandelion seeds, but paused when he found that it was not in its usual resting place. His frantic fingers, sinewy with hardship, grasped at all corners of the tiny closet, unearthing 
