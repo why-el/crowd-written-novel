@@ -1,1 +1,1 @@
-It was a sunny May day when Bill decided to take a walk. He reached for his cane
+It was a sunny May day when Bill decided to take a walk. He reached for his cane. As he walked out of his lab he thought to himself "I deserve a break".
