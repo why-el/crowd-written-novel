@@ -11,3 +11,5 @@ Your contributions don't have to be long, in fact even a small sentence is accep
 Pull requests do not have to be about the story line; they could also suggest tips on how to improve this process. We can then refine this README. In fact I'd reckon we need a lot of improvements to the process, since I abandoned my own structure in favor of one that naturally shapes up as we go about this.
 
 I started with a very simple line: "It was a sunny May day". Your turn.
+
+Subreddit for the discussion of this project: http://www.reddit.com/r/GitHubNovel/
