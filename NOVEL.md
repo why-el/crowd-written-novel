@@ -1,4 +1,5 @@
-It was a sunny May day when Bill decided to take a walk. He reached for his cane.
+It was a sunny May day when Bill decided to take a walk.
+He reached for his cane.
 His fingers slowly curled around it one by one by one by one by one.
 He took a deep breath.
 He felt powerful.
