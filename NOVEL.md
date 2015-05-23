@@ -1,1 +1,3 @@
-It was a sunny May day when Bill decided to take a walk. He reached for his cane
+It was a sunny May day when Bill decided to take a walk. He reached for his cane. 
+
+With a quick fliuck of his wrist, he snaps the head of the cane back, revealing...
